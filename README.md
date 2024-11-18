@@ -1,3 +1,3 @@
-wespeokfospgo
-selfwkgsssrs
-glls,po,gok
+Устал
+очень
+сильно
