@@ -1,4 +1,2 @@
-Устал
-очень
-сильно
-lf
+wrethyrjgj
+ehtjyj
